@@ -14,9 +14,9 @@
 ### 18+奴酱下载[点击进入](https://p801kkosonua.top/?channel_code=MIM17BG2)
 [](#聊天)
 [![hosts](https://av8600.github.io/image/ha3.jpg)](#22-如何修改hosts)
-### 18+哔咔漫画下载[点击进入](https://bkiwgn67.com?ch=oebg21bk)
-### 18+ 91次元下载[点击进入](https://917xc2kn.com/?ch=oebg21cy)
-### 18+糖心下载[点击进入](https://txa4qn21.com/?_c=oebg31tx)
-### 18+海角社区[点击进入](https://d.hj63yu.com/?channel=ykhjqq1)
+### 18+哔咔漫画下载[点击进入](https://bk9xvpbg.com?ch=oebg21bk)
+### 18+ 91次元下载[点击进入](https://91nyw78a.com/?ch=oebg21cy)
+### 18+糖心下载[点击进入](https://txzvxya5.com/?_c=oebg31tx)
+### 18+海角社区[点击进入](https://d.hj17fe.com/?channel=ykhjqq1)
 ### 18+吃瓜基地[点击进入](https://no-1.xyz/?pid=5232020)
 
